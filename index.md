@@ -1,7 +1,7 @@
 # Julie Acevedo
 **B.S. Mechanical Engineering, Emphasis in Aerospace**  
 Brigham Young University (BYU) | GPA: 4.00  
-[Email](mailto:julie.acevedo@icloud.com) • [LinkedIn](https://www.linkedin.com/in/julieacevedo/)
+[Email](mailto:julie.acevedo@icloud.com) • [LinkedIn](https://www.linkedin.com/in/julie-acevedo-68530a284/)
 
 I am an aerospace-focused mechanical engineering undergraduate researching dynamic shock isolation metamaterials and fabricating high-power rocketry flight vehicles.
 
